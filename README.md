@@ -37,6 +37,35 @@ _Repasar los métodos aprendidos para la resolución de circuitos
 ![image](https://user-images.githubusercontent.com/116760257/209416282-b9696815-77ed-489e-b7d0-06cef333ebdf.png)
 
 
+![image](https://user-images.githubusercontent.com/116760257/209416318-79fdd681-aa35-4da2-9763-d81dc9009aa6.png)
+![image](https://user-images.githubusercontent.com/116760257/209416326-798103f6-ea6b-48ef-97c0-070c9d67537f.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416335-0d4b9a43-7b17-4da2-b00b-4a0153c558c1.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416343-96152aff-49ce-448b-b7f9-c2110f5833a1.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416349-611ff939-1a19-4326-88c5-c46ef89f165f.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416356-e7cd0d38-e2b3-4039-acb5-ec38bce5ad82.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416357-30a69594-1ed1-413a-8143-03bd82c78f64.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416364-80bca869-a949-42ad-992c-a1782a00efb7.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416372-78f14e49-44d8-43fc-8f12-9f39690e8442.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416384-21f4ea60-c6ad-49d9-8314-9f4da9bd1b1c.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416417-124a5404-98c8-4f02-b71c-7b727a48d8cd.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416427-d37e549c-14ef-485f-9db0-8e6a66524fc0.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416449-5f83307c-9f1b-4eee-8443-d43906ec7c6b.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416450-96904bd2-0d23-48fa-a2b8-2f724154a218.png)
+
+![image](https://user-images.githubusercontent.com/116760257/209416454-5544e268-9e10-4cd7-9bdd-fbde26133712.png)
+
 
 
 
