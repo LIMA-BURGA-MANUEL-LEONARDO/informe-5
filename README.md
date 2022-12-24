@@ -34,6 +34,8 @@ _Repasar los métodos aprendidos para la resolución de circuitos
 ![image](https://user-images.githubusercontent.com/116760257/209416254-d9c2c53c-e9f5-46dc-a01e-ceff51dab43a.png)
 
 
+![image](https://user-images.githubusercontent.com/116760257/209416282-b9696815-77ed-489e-b7d0-06cef333ebdf.png)
+
 
 
 
