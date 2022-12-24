@@ -117,6 +117,7 @@ _Repasar los métodos aprendidos para la resolución de circuitos
 
 
 4) Vídeo
+https://youtu.be/DM7k5txbAXASDERFR4.1
 
 5.Conclusiones
 
